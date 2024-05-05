@@ -1,4 +1,4 @@
-⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 
+⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 🐾 
 
 ![image](https://github.com/petewentz/petewentz/assets/168529374/6e22b467-bc53-47be-8f42-87e4be217d58) ![images-5](https://github.com/petewentz/petewentz/assets/168529374/d32f2871-3062-4836-aff5-e950266114ab)
 ![tumblr_o67r6avwdZ1tsjn05o5_400](https://github.com/petewentz/petewentz/assets/168529374/6d102e46-1109-4905-9394-4b2ec169afb7) ![unnamed-4](https://github.com/petewentz/petewentz/assets/168529374/7ee9faf6-d33f-48ed-87bb-b30971ad4462)
