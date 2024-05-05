@@ -15,6 +15,8 @@
 ![11618933_2f2a5](https://github.com/petewentz/petewentz/assets/168529374/43e066c6-5efa-48f3-8bbc-a7ccbde58c88)
 ![11351966_b504d](https://github.com/petewentz/petewentz/assets/168529374/61607650-0bd2-4214-bf0c-1613787809bd) ![unnamed-6](https://github.com/petewentz/petewentz/assets/168529374/bc8040b2-bfc6-485e-968c-f351d48d543e) ![11533646_788ad](https://github.com/petewentz/petewentz/assets/168529374/c220ab9a-6c53-400e-bdfd-3cfe1e7eee5c)
 
+![11754377_5268f](https://github.com/petewentz/petewentz/assets/168529374/54723091-150c-41b8-92b2-09cf36ae813c)
+
 
 
 
