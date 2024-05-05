@@ -1,4 +1,5 @@
-⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 🐾 ![Screen Shot 2024-05-05 at 4 37 08 AM](https://github.com/petewentz/petewentz/assets/168529374/bd9a0d57-3162-4266-a5fd-e502cd80d170)
+⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 🐾 ![11754419_2507f](https://github.com/petewentz/petewentz/assets/168529374/21ca61d1-fde1-404e-9cb4-d0d3674faf41)
+
 
 
 ![image](https://github.com/petewentz/petewentz/assets/168529374/6e22b467-bc53-47be-8f42-87e4be217d58) ![images-5](https://github.com/petewentz/petewentz/assets/168529374/d32f2871-3062-4836-aff5-e950266114ab)
