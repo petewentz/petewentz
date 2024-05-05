@@ -1,4 +1,4 @@
-⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 🐾 ![11754419_2507f](https://github.com/petewentz/petewentz/assets/168529374/21ca61d1-fde1-404e-9cb4-d0d3674faf41)
+⋆˚☆˖° i love u patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him (_no they/them_) 𖤐 18 🐾 
 
 
 
