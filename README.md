@@ -1,5 +1,5 @@
 ⋆˚☆˖° i love patrick <3 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him 𖤐 18 🐾 
-mostly afk whisp to int 
+
 ![picmix com_11754419-ezgif com-resize copy](https://github.com/petewentz/petewentz/assets/168529374/0bea5f12-8b96-47c6-b512-51a3d5d3bcd9)
 
 
