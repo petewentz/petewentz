@@ -1,4 +1,4 @@
-⋆˚☆˖° nagito komaeda and fall out boy freak ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him 𖤐 19 🐾 izuru/hajime irl 
+⋆˚☆˖° nagito komaeda and fall out boy freak ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him 𖤐 19 🐾
 im friendly do not be afraid to talk to me ! i am not good at talking because i am severely autistic please do not take it personally 
 
 ![picmix com_13109606](https://github.com/user-attachments/assets/f5bf807c-953b-4ea4-9060-0e77fb511f45)
