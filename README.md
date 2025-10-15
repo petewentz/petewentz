@@ -1,4 +1,5 @@
-⋆˚☆˖° peterick is real 11/03/20 ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him 𖤐 18 🐾 
+⋆˚☆˖° nagito komaeda and fall out boy freak ₊⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ he/him 𖤐 19 🐾 izuru/hajime irl 
+im friendly do not be afraid to talk to me ! i am not good at talking because i am severely autistic please do not take it personally 
 
 ![picmix com_11754419-ezgif com-resize copy](https://github.com/petewentz/petewentz/assets/168529374/0bea5f12-8b96-47c6-b512-51a3d5d3bcd9)
 
